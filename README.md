@@ -19,3 +19,5 @@
 #sou sa oretachi ga JUDGEMENT
 
 #JUDGEMENT... 
+
+zapraszam na nowy serwer minecraft
